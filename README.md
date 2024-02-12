@@ -25,3 +25,5 @@ i love my wife
 okay babygirl damilola
 
 home sweet home.......
+
+the Lord is good
